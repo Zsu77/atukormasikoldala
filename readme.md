@@ -5,3 +5,6 @@ Léna egyetlen pillantással átlépett az üvegen, nem sejtve, hogy amit talál
 "A kapu nyitva van, de nem mindenki lépheti át" – és e mondat éppoly későn érkezett, mint az ébredés vágya egy mély álom végén. Léna érezte, hogy a tükör többé nem csak határ, hanem börtön is.
 
 A világ ott bent most már az övé volt – és épp ez volt benne a legrémisztőbb.
+
+Egy világ lehet a lehetőségek tárháza, de lehet kalitka is, amiből szabadulna az ember.
+Vajon Léna miként fogja fel?
