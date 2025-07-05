@@ -20,3 +20,4 @@ Ebben a furcsa világban mindenki álruhát hord válaszolta a béka. Mindenki m
 Lehet, hogy ebben rejlik a megoldás. Gondolta Léna.
 Ha valaki azt hiszi magárol, hogy a szürke mindennapok fogvatartják, akkor szomorú és hosszú napok várnak csak rá. Azonban, ha úgy tekintünk kelünk fel minden reggel, hogy új kihivások és lehetőségek várnak ránk valahol, akkor minden izgalmassá válik.
 Léna rájött, hogy az egész probléma megoldása a hozzááláson múlik. Egyszerűen csak azt kell gondolni, hogy otthon vagyk az ágyamban, és kikerülök a tükörből.
+Léna hirtelen felült az ágyában és levegőért kapkodott, mint egy fuldokló. Körbenézett. Még sötét volt. A hold fénye bevilágított az ablakon. Mellkasa zhált, izzadtságtól tapadt rá a hálóinge. Otthon volt. Csak egy rémálom. -nyugtatgatta magát. Felkellt és kiment a konyhába vizet inni. Végre megnyugodott kicsit. 
