@@ -17,3 +17,4 @@ Léna rájött, hogy ő alakváltó. Ezen kicsit eltöprengett. Hogyan lett bel�
 
 Léna és a teknős barátok lettek. Léna bikinit húzott és együtt napoztak tovább.
 Ebben a furcsa világban mindenki álruhát hord válaszolta a béka. Mindenki másnak akar látszani, mint ami.
+Lehet, hogy ebben rejlik a megoldás. Gondolta Léna.
