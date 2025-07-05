@@ -16,3 +16,4 @@ A teknős letelepedett a szikla mellé, és egy pillanatra elfeledte a tükrök 
 Léna rájött, hogy ő alakváltó. Ezen kicsit eltöprengett. Hogyan lett belőle teknős, most pedig újra Léna?
 
 Léna és a teknős barátok lettek. Léna bikinit húzott és együtt napoztak tovább.
+Ebben a furcsa világban mindenki álruhát hord válaszolta a béka. Mindenki másnak akar látszani, mint ami.
