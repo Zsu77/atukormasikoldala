@@ -13,4 +13,4 @@ A béka elmosolyodott. – Akkor jó helyen jársz. Itt mindenki másvalamit ker
 
 A teknős letelepedett a szikla mellé, és egy pillanatra elfeledte a tükrök világát, mert most itt, a napfényben, végre nem volt egyedül.
 
-Ha szeretnéd, folytathatom a történetet még pár bekezdéssel: folytatás.
+Léna és a teknős barátok lettek. Léna bikinit húzott és együtt napoztak tovább.
