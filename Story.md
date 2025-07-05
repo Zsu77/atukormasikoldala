@@ -3,3 +3,14 @@ Léna úgy döntött, hogy nem adja fel, hanem megkeresi a kiutat a tükörből,
 Egy társsal minden könnyebb, hát elindult barátokat keresni.
 Ahogy haladt, egy békát pillantott meg, ahogy egy nagy szikla szélén napozott.
 - Szervusz! - mondta.
+A béka lassan kinyitotta a szemét, majd komótosan a teknős felé fordult.
+
+– Szervusz, utazó! Mi járatban errefelé, ahol csak a szél mesél és a nap melegít? – kérdezte barátságosan.
+
+– Barátokat keresek – válaszolta a teknős halkan, de határozottan. – Olyanokat, akikkel megoszthatom a világomat.
+
+A béka elmosolyodott. – Akkor jó helyen jársz. Itt mindenki másvalamit keres, és néha épp közben találjuk meg egymást. Ülj ide mellém, pihenj egy kicsit.
+
+A teknős letelepedett a szikla mellé, és egy pillanatra elfeledte a tükrök világát, mert most itt, a napfényben, végre nem volt egyedül.
+
+Ha szeretnéd, folytathatom a történetet még pár bekezdéssel: folytatás.
