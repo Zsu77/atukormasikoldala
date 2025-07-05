@@ -19,3 +19,4 @@ Léna és a teknős barátok lettek. Léna bikinit húzott és együtt napoztak 
 Ebben a furcsa világban mindenki álruhát hord válaszolta a béka. Mindenki másnak akar látszani, mint ami.
 Lehet, hogy ebben rejlik a megoldás. Gondolta Léna.
 Ha valaki azt hiszi magárol, hogy a szürke mindennapok fogvatartják, akkor szomorú és hosszú napok várnak csak rá. Azonban, ha úgy tekintünk kelünk fel minden reggel, hogy új kihivások és lehetőségek várnak ránk valahol, akkor minden izgalmassá válik.
+Léna rájött, hogy az egész probléma megoldása a hozzááláson múlik. Egyszerűen csak azt kell gondolni, hogy otthon vagyk az ágyamban, és kikerülök a tükörből.
